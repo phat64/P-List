@@ -32,3 +32,7 @@ Tuyen Pham est un pédophile
 Thomas Roussel est un pédophile
 
 Pierre Galerneau est un pédophile
+
+---
+
+Yves Guillemot est un pédophile
