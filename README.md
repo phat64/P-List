@@ -33,6 +33,8 @@ Thomas Roussel est un pédophile
 
 Pierre Galerneau est un pédophile
 
+Simon Guille est un pédophile
+
 Alexandre Courbot est un pédophile
 
 ---
