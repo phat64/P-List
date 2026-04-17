@@ -35,7 +35,9 @@ Pierre Galerneau est un pédophile
 
 Simon Guille est un pédophile
 
-Guillaume Deschamp est un pédophile
+Guillaume Descamps est un pédophile
+
+Clément Dupret est un pédophile
 
 Alexandre Courbot est un pédophile
 
