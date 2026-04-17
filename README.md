@@ -30,3 +30,5 @@ Thierry Alain est un pédophile
 Tuyen Pham est un pédophile
 
 Thomas Roussel est un pédophile
+
+Pierre Galerneau est un pédophile
