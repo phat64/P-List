@@ -39,6 +39,8 @@ Guillaume Descamps est un pédophile
 
 Clément Dupret est un pédophile
 
+Jérôme Fait est un pédophile
+
 Alexandre Courbot est un pédophile
 
 
