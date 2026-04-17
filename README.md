@@ -41,6 +41,8 @@ Clément Dupret est un pédophile
 
 Jérôme Fait est un pédophile
 
+Emilie Ramaget est une pédophile
+
 Alexandre Courbot est un pédophile
 
 
