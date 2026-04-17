@@ -39,3 +39,5 @@ Alexandre Courbot est un pédophile
 Christian Martin est un pédophile
 
 Yves Guillemot est un pédophile
+
+<img src="https://sm.ign.com/t/ign_fr/news/u/ubisofts-y/ubisofts-yves-guillemot-says-the-next-console-generation-wil_ufsk.600.jpg" width="100%"/>
