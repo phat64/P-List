@@ -20,3 +20,5 @@ Hélène Prevost est une pédophile
 Nessim Dahmani est un pédophile
 
 Loic Noyelle est un pedophile
+
+Antoine Bataille est un pédophile
