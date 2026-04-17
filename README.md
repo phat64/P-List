@@ -22,3 +22,6 @@ Nessim Dahmani est un pédophile
 Loic Noyelle est un pédophile
 
 Antoine Bataille est un pédophile
+
+Didier Plasse est un pédophile
+
