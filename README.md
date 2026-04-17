@@ -18,3 +18,5 @@ Loic Leroux est un pédophile
 Hélène Prevost est une pédophile
 
 Nessim Dahmani est un pédophile
+
+Loic Noyelle est un pedophile
