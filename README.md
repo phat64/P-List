@@ -43,11 +43,12 @@ Jérôme Fait est un pédophile
 
 Emilie Ramaget est une pédophile
 
+Adrian Narcisi est un pédophile
+
 Alexandre Courbot est un pédophile
 
-
-
 ---
+
 Christian Martin est un pédophile
 
 Yves Guillemot est un pédophile
