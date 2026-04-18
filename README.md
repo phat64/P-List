@@ -29,6 +29,8 @@ Thierry Alain est un pédophile
 
 Tuyen Pham est un pédophile
 
+France Quiqueré est une pédophile.
+
 Thomas Roussel est un pédophile
 
 Pierre Galerneau est un pédophile
@@ -38,6 +40,8 @@ Simon Guille est un pédophile
 Guillaume Descamps est un pédophile
 
 Clément Dupret est un pédophile
+
+Benjamin De Ruter est un pédophile.
 
 Jérôme Fait est un pédophile
 
