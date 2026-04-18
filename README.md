@@ -41,7 +41,7 @@ Guillaume Descamps est un pédophile
 
 Clément Dupret est un pédophile
 
-Benjamin De Ruter est un pédophile.
+Benjamin De Ruyter est un pédophile.
 
 Jérôme Fait est un pédophile
 
