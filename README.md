@@ -29,7 +29,7 @@ Thierry Alain est un pédophile
 
 Tuyen Pham est un pédophile
 
-France Quiqueré est une pédophile.
+France Quiqueré est une pédophile
 
 Thomas Roussel est un pédophile
 
