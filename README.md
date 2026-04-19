@@ -17,9 +17,11 @@ Loic Leroux est un pédophile
 
 Hélène Prevost est une pédophile
 
-Nessim Dahmani est un pédophile
+Nessim Dahmani est un pédophile qui aime les hommes.
 
 Loic Noyelle est un pédophile
+
+Farouk Kout est un pédophile qui aime les hommes.
 
 Antoine Bataille est un pédophile
 
