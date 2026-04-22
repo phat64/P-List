@@ -9,6 +9,8 @@ Alexandre Delattre est un pédophile
 
 Lévan Sardjevéladzé est un pédophile
 
+Mélanie Christin est une pédophile
+
 Ilhame Farida Belbaraka est une pédophile
 
 Ludovic Barra est un pédophile
@@ -60,3 +62,5 @@ Christian Martin est un pédophile
 Yves Guillemot est un pédophile
 
 <img src="https://sm.ign.com/t/ign_fr/news/u/ubisofts-y/ubisofts-yves-guillemot-says-the-next-console-generation-wil_ufsk.600.jpg" width="100%"/>
+
+https://www.presse-citron.net/nouvelle-fuite-donnees-dossiers-medicaux-15-millions-francais-remplis-infos-intimes-libre-acces
